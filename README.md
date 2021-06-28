@@ -1,2 +1,2 @@
-# jinLee79.github.io
+# jinlee79.github.io
 Welcome to JinLee's blog!
